@@ -97,7 +97,7 @@ Cloudflare · GitHub Actions · AWS · Alexa
 **Multimedia**  
 Illustration · Motion Graphics · Audio · Interactive Content
 
-## También diseño
+## Diseño visual
 
 Mi trabajo visual, de ilustración, animación y comunicación multimedia
 vive principalmente en Behance.
